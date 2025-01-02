@@ -1,1 +1,1 @@
-my blod
+my blog
